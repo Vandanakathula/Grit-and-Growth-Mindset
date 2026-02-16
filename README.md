@@ -14,8 +14,8 @@ Internal locus of control is when you believe that your actions and decisions di
 
 ## 4. How to build a Growth Mindset
 ### Q-4. What are the key points mentioned by speaker to build growth mindset (explanation not needed).
-. Believe in your ability to figure things out.
-. (Often videos like this also highlight ideas such as) practice effort, learn from mistakes, and be open to challenges.
+Believe in your ability to figure things out.
+(Often videos like this also highlight ideas such as) practice effort, learn from mistakes, and be open to challenges.
 
 ## 5. Mindset - A MountBlue Warrior Reference Manual
 ### Q-5. What are your ideas to take action and build Growth Mindset?
